@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Junish Varghese!
+- 👋 Hi, I’m Junish..!
 - 👀 I’m interested in Tux life adventures!
 - 🌱 I’m currently learning and toastig the learning!
 - 💞️ I’m looking to collaborate on everything!
